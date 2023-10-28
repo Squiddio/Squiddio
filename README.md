@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Squiddio
-- 👀 I’m interested in Concept Art/Game Dev
-- 🌱 I’m currently learning Games Art
+- 👀 I’m interested in Concept Art/ 3D Art/ Game Dev
+
