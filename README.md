@@ -1,2 +1,2 @@
-I create Concept & 3D & Tech Art!
+I create Concept, 3D & Tech Art!
 
